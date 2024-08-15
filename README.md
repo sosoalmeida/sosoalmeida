@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning programs and tecnology in general
 - ⚡ Fun fact: i love dolphins
 
-https://media.tenor.com/L-28Y27hOcQAAAAj/cute-hug.gif
+ https://media.tenor.com/ZXBks2QSfdgAAAAM/cats-kittens.gif
